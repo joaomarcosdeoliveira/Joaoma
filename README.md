@@ -8,7 +8,7 @@
 
 000113553553xSP@al.educacao.sp.gov.br
 
-@joaomarcosdeoliveira
+@joaomarcosdeolive 
 
+![image](https://github.com/user-attachments/assets/86d92dcc-5f5c-4a7f-acd5-c544e63783b7)
 
-![image](https://github.com/user-attachments/assets/89df0535-5356-47a9-975e-bfd0b145e0e3)
